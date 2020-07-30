@@ -1,1 +1,1 @@
-# DeitySenpai
+# [DeitySenpai](https://github.com/DeitySenpai)
