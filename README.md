@@ -1,4 +1,4 @@
-# [DeitySenpai](https://github.com/DeitySenpai)
+# [DeitySenpai](https://github.com/DeitySenpai) //my github profile
 * **[discord](https://discord.gg/xFZHVFU)**
 * **[twitter](https://twitter.com/home?lang=ru)**
 * **[gmail](https://mail.google.com/mail/u/0/#inbox?compose=CllgCJvnJMrXBvtnHlgvxvvvdJRTKbpQDcpFmDmgNGPDSvGWCwWWbFfBvmQHJpRPzjvWlxhFpcg)**
